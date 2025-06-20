@@ -1,1 +1,2 @@
-# .github
+# *Our Divine Saviour, Jesus Christ*
+## *In a world filled with noise, chaos, and uncertainty, there’s one name that brings peace, hope, and healing—Jesus Christ. He is more than a historical figure; He is our Saviour, Friend, and Eternal Hope. Let these truths remind you of who He is and why He matters today.Jesus isn’t just someone from history books. He’s alive, active, and deeply invested in your life. Whatever you’re facing today—heartbreak, fear, doubt, or pain—remember: There is power in the name of Jesus. There is healing in His touch. And there is hope because He lives.* [More details…](https://spiritualkhazaana.com/web-stories/our-divine-saviour-jesus-christ/)
